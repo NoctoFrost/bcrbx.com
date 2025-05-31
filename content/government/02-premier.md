@@ -35,7 +35,7 @@ The Honourable S3aWo1fz was appointed Deputy Premier by [Order in Council No. 16
 
 ## The Cabinet Secretary
 
-**The Honourable FoxyTheWereFox OBC MSC MB MSM CD MLA**
+**FoxyTheWereFox OBC MSC MB MSM CD AdeC**
 
 The Cabinet Secretary is [Deputy Minister](/gov/cabinet/deputy-ministers) to the Premier, Secretary to the [Cabinet](/gov/cabinet), and Head of the [Public Service](/gov/public-service).
 
